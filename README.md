@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @faizahmed29
-- 👀 I’m interested in .BLOCKVHAN DEVELOPER..
+- 👀 I’m interested in .BLOCKCHAIN DEVELOPER..
 - 🌱 I’m currently learning .BTECH..
 - 💞️ I’m looking to collaborate on .GOOD COMPANY..
 - 📫 How to reach me .faizahmed29@rediffmail.com..
